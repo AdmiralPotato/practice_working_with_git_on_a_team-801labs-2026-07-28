@@ -16,6 +16,7 @@ Be careful, some goats got some swag.
 
 ![Gangster goat](gangster_goat.jpg)
 
+Goats are very goofy animals
 
 ## Recipe for power line grass
 
