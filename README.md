@@ -12,6 +12,11 @@ Baby goats are so cute that it makes me want to adopt one!
 
 ![A baby goat that is TOO CUTE](baby_goat.webp)
 
+Be careful, some goats got some swag.
+
+![Gangster goat](gangster_goat.jpg)
+
+
 ## Recipe for power line grass
 
 ### Recipe
