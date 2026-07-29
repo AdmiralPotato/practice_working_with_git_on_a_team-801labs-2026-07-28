@@ -10,6 +10,8 @@ Goats favorite food may or may not be fiber optics.
 
 Baby goats are so cute that it makes me want to adopt one!
 
+![A baby goat that is TOO CUTE](baby_goat.webp)
+
 ## Recipe for power line grass
 
 ### Recipe
