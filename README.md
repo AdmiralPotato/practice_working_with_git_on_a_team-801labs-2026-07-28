@@ -8,6 +8,7 @@ Goats like to eat fresh green grass!
 
 Goats favorite food may or may not be fiber optics.
 
+Baby goats are so cute that it makes me want to adopt one!
 
 ## Recipe for power line grass
 
