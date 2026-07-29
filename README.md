@@ -8,6 +8,10 @@ Goats like to eat fresh green grass!
 
 Goats favorite food may or may not be fiber optics.
 
+Goats jump very high and they like to jump on the top of the house, barns and trees!
+
+![Goat eating from power line](goat_eat.jpeg)
+
 ## Recipe for Grass For Goats
 
 ### Ingredients
